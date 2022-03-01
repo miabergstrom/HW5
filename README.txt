@@ -1,2 +1,0 @@
-Mia Bergstrom
-Milwaukee Bucks
